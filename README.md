@@ -1,2 +1,0 @@
-# coranaproject
-eaweaweawed
